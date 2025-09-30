@@ -54,7 +54,7 @@ An intelligent agent that creates **end-to-end marketing strategy**.
 ---
 
 ## 📬 Connect With Me
-- 📧 Email: **mathavanmukesh98@gmail.com**  
+- 📧 Email: **maddy998787@gmail.com**  
 - 💼 LinkedIn: [linkedin.com/in/mathavan-m](#)  
 - 🌐 Portfolio Website: *Coming Soon*  
 
